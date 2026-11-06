@@ -4,7 +4,7 @@ Reliable systems
 
 Backends and systems you don't need to worry about.
 
-[Make an offer](mailto:me@giovanigrazioli.dev)
+[Make an offer](mailto:giovani.grazioli@bomdemais.app.br)
 
 ## Work
 
@@ -32,6 +32,6 @@ Off the work: online RPGs, waterfalls and beaches, food (from a proper churrasco
 
 [giovanigrazioli.dev](https://giovanigrazioli.dev)
 
-[me@giovanigrazioli.dev](mailto:me@giovanigrazioli.dev)
+[giovani.grazioli@bomdemais.app.br](mailto:giovani.grazioli@bomdemais.app.br)
 
 [+55 12 9 8232-3884](https://wa.me/5512982323884)
